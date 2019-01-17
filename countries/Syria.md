@@ -1,14 +1,14 @@
 ##Syria
-## population
+## population of 18.27 million
 
 
-## capital
+## capital: Damascus
 
  
-## official language
+## Arabic
 
 
-## interesting trivia
+## Damascus is one of the longest continually inhabited cities in the world
 
 
 
